@@ -1,1 +1,1 @@
-Interested in Bitcoin and the Lightning Network
+Interested in Bitcoin &#8383; and the Lightning Network
